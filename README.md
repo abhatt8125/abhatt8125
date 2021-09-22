@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Aastha!
+- 👀 I’m learning Javascript currently and looking foward to learn other langauges 
+- 📫 How to reach me: You can reach me at altAastha@gmail.com or abhatt8125@gmail.com (altAastha is perfferd) 
